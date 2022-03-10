@@ -1,0 +1,2 @@
+# Quick
+It's time to amplify your online business.
